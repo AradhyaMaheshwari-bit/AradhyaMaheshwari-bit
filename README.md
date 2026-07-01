@@ -1,5 +1,5 @@
 # 💫 Hi 👋, I'm Aradhya Maheshwari
-**Aspiring Data Analyst | Power BI | SQL | Python | Excel | Tableau**
+**Data Analyst | Python • SQL • Power BI • Excel | EDA • Dashboard Development | 5+ Data Analytics Projects | IBM SkillsBuild Certified**
 
 Email Me 👉 ✉️ **maheshwariaradhya065.com** For Collaboration/Project or Anything Else. 😊😊
 
