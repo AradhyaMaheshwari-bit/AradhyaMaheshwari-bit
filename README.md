@@ -6,7 +6,7 @@ Email Me 👉 ✉️ **maheshwariaradhya065.com** For Collaboration/Project or A
 - 🔭 **I’m currently working on:** ApexPlanet Software Pvt. Ltd. Data Analytics Internship Program
 - 🌱 **I’m currently learning:** Power BI | Tableau
 - 💬 **Ask me about:** Collaboration, Tech Support
-- 📫 **How to reach me:** maheshwariaradhya@065@gmial.com
+- 📫 **How to reach me:** maheshwariaradhya065@gmial.com
 - ⚡ **Fun fact:** I Love Tech and Tech Love Me
 <!--
 - 👯 **I’m looking to collaborate on:** Enter your project name and info
